@@ -8,7 +8,10 @@
 4. [Enrolled in Bsc Degree in Programming & Data Science from IIT, Madras](https://onlinedegree.iitm.ac.in/)
 ## Working Experiance
 🔭Currently working in Government sector
-## Favorite Places for Holiday
+## Hobbies & Intrests
+Love to play 🏏Cricket Photographery 📸painting🎨
+## Favourite Places for Holiday
 Moscow & Manali
 
 ![russia1](https://user-images.githubusercontent.com/96046548/147118218-5bb66387-31d1-4466-bca4-b9b9f745d2d7.jpg)
+## 🤝 Connect with me:
