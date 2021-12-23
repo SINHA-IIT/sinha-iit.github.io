@@ -15,4 +15,8 @@ Moscow & Manali
 
 ![russia1](https://user-images.githubusercontent.com/96046548/147118218-5bb66387-31d1-4466-bca4-b9b9f745d2d7.jpg)
 ## 🤝 Connect with me:
-![fb](https://www.facebook.com/abhisinha88)
+[Facebook](https://www.facebook.com/abhisinha88)
+
+[Twitter](https://twitter.com)
+
+***[Website](http://sinhaabhinashkumar.me/)***
